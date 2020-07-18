@@ -1,0 +1,2 @@
+# -UTKU-KING-
+selamun aleyküm
