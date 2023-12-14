@@ -1,2 +1,0 @@
-
-sayfası utku tarafından yapılmıştır. 
